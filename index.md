@@ -1,3 +1,3 @@
-# Welcome to my blog
+# my art projects
 
-I'm glad you are here. I plan to talk about ...
+here are some pictures
